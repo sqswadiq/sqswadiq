@@ -2,7 +2,6 @@
 - 👀 I’m interested in making new development idea's 
 - 🌱 I’m currently learning ME(A)RN STACK 
 - 💞️ I’m looking to collaborate with me on projects 
-- 📫 Hl
 - 😄 juz trying to become a pro😉
 - ⚡ Always being Engaged 
 
